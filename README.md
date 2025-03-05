@@ -1,1 +1,0 @@
-# Jampas.github.io
